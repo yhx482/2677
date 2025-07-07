@@ -36,4 +36,4 @@
 本站所有资源均为网络采集与整理，页面速度优化良好，适配各类浏览器，建议开启 VPN 工具保障访问稳定性。立即收藏本页面，获取每日更新的免费高清日本AV番号推荐！
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/yhx482/2677 ）</span>
